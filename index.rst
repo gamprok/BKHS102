@@ -5,7 +5,7 @@ UPDATED: 08-10-2021|{ONLINE USERS:7659}
 
 are you looking board kings hack free rolls link working right now then you come right place
 
-`CLICK HERE TO GET BOARD KINGS HACK FREE ROLLS LINKS NOW. <https://goodfile.cc/3d0e38d>`__
+`CLICK HERE TO GET BOARD KINGS HACK FREE ROLLS LINKS NOW. <https://unlock3r.net/3d0e38d>`__
 
 `CLICK HERE TO DOWNLOAD board kings mod apk latest version. <https://filesmart.net/065ab27>`__
 
